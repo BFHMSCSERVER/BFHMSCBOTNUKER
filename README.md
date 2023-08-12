@@ -12,3 +12,7 @@ DETAILS BFHMSC BOT NUKER : Create Channel Random channel Create Vc Create Catego
 
 
 BFHMSC BOT NUKER PROGRAM 8.53 USD. SOURCE CODE 42.65 USD.
+
+
+
+https://media.discordapp.net/attachments/1116552584044498974/1139407004012654612/BOTNUKER.png.jpg?width=825&height=548
